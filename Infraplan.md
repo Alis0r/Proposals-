@@ -14,7 +14,7 @@ I can help networking and crosspollination - tranfer of knowledge and informatio
 I can help develop fundraising strategies 
 I can help with business modeling 
 I can help with conflict resolution if it doesn't come to couples 
-I can lead circles 
+I can lead circles -
 I can write speeches - inspirational ones 
 I can make reports - set -up monitoring and evaluation processes 
 I can help structuring indicators - impact indicators on specific activities
