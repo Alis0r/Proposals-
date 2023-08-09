@@ -2,7 +2,7 @@ This proposal will be submitted directly to Liminal Village from my Github repos
 
 Onboarding processes should include personal projects presentation. Persons willing to visit the project for more than one lunation or stay on site for a period longer than 2 weeks should present a complete project proposal to present their contribution to the project development on site.
 
-Liminal could provide a set of priorities connected with project's development needs and interested visitors could adapt their projects to those priorities or highlight the connections between their project and those priorities.
+Liminal (or whatever project "X") could provide a set of priorities connected with project's development needs and interested visitors could adapt their projects to those priorities or highlight the connections between their project and those priorities.
 Onboarding - Selection process shall also take into consideration these proposals over than overall assessment of applicant abilities and potential contribution to the project development or even to the network development.
 
 Onboarding processes shall be transparent as well as applicants assessment procedures - so onboarding interviews recorded if agreed by the participatns and stored to be accessible to everyone in the network. Same for all relevant documentation produced within the onboarding process, including of course the proposal.
