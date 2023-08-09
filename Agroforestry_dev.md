@@ -1,5 +1,7 @@
 # This proposal aims to start-up the Agroforestry development process within the Liminal 
 
+The proposal has been developed during a planting session for a project in Fara in Sabina, where I had the idea of using the income from the trees to build the irrigation system and payng the workers. In that context the proposal wasn't accepted but I produced it so to be used in other contexts - actually the model could support also organic agriculture start-ups as pree-seed, and also create a revenue if sistematically inserted in the agroforest management process. (respecting the system evolution and the succession grades of course) - some of these trees can also create revenues for wood over than allowig the projects to activate honey production (for self sufficiency but also for exchanges or redistribution within the network - or if needed for sale) . 
+
 The projects presents about 3 hectares of land potentially managed through an agroforest installation 
 
 Main proposal is to have a 3x4 implant including plants from CO2 sequestration processes as well as for bees feeding. 
