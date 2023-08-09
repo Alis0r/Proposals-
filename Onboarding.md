@@ -30,7 +30,9 @@ Transparent onboarding and periodical assessment processes can guarantee the bas
 Transparent documentation of the interaction with applicants can also serve as base for network participated conflict resolution processes - this meaning whatever members of the network coming from whatever project can take part into a conflict resolution process that needs to be transparent, accessible and public as well .
 
 Transparent acceptance of clear agreements is also an asset - Clear transparent requests toward the applicants at whatever level must be publically accessible and noticed to all network 
-On the other side commitments from the applicants must also be transparent and noticed to all network 
+On the other side commitments from the applicants must also be transparent and noticed to all network. 
+
+As for personal experience and to enhance communities/projects safety and activate a conflict prevention system - in all agreements a clear prohibition of gossiping or using personal coaching or personal development support systems to attack one specific member or culture or group shall be duly and clearly mentioned. Ransom on resources redistribution shall also be mentioned as forbidden dynamic to counter balance power issues. 
 
 Verification on agreements/commitments respect is basic - all requests needs to be explicit and verbally communicated to the applicant - not explicit requests will not be taken into consideration for performance assessment or agreements/commitments verification - nor accountable for reputation 
 
