@@ -15,5 +15,11 @@ Periodical reviews on applicant performance with public final assessment shall b
 These basic procedures aim to protect the applicant from ambiguity - several projects are run by people having resources and strong systems of support - majority of applicants could be potentially considered as "system's refugees" - vulnerable people that can be easily manipulated and damaged.
 The transparency of the onboarding processes is a guarantee for the hosts as well as for the applicant - transparent onboarding processes guarantee for the applicant the creation of a strong system of support shielding them from potential (even unwated) misbehaviours by the hosts or performed damaging the hosts as well as strong shield and protection from power abuses coming usually from the hosts as they have the property of the place and the facilities.
 Transparent onboarding and periodical assessment processes can guarantee the basic rights of the applicants as well as the ones of the hosts - avoiding people to be suddenly kicked out of projects putting up excuses or people forced in leaving and blamed for that. On the other side this also gives the hosts the security that applicants will take faith to their commitments before leaving the projects.
-Transparent documentation of the interaction with applicants can also serve as base for network participated conflict resolution processes - this meaning whatever members of the network coming from whatever project can take part into a conflict resolution process that needs to be transparent, accessible and public as well  
+Transparent documentation of the interaction with applicants can also serve as base for network participated conflict resolution processes - this meaning whatever members of the network coming from whatever project can take part into a conflict resolution process that needs to be transparent, accessible and public as well .
+
+Transparent acceptance of clear agreements is also an asset - 
+Clear transparent requests toward the applicants at whatever level must be transparent and noticed to all network 
+On the other side commitments from the applicants must also be transparent and noticed to all network 
+
+Verification on agreements/commitments respect is basic - all requests needs to be explicit and verbally communicated to the applicant - not explicit requests will not be taken into consideration for performance assessment or agreements/commitments verification - nor accountable for reputation 
 
