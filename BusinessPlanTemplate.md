@@ -1,4 +1,4 @@
-This is a BP template produced for developing a Business activity within the Liminal Village hub of services framework 
+This is a BP template produced for developing a Business activity within the Liminal Village hub of services framework - Feb 2023
 
 BUSINESS PLAN INDEX – Project Title (plus acronym is better)
 
