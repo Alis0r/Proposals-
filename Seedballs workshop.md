@@ -5,7 +5,7 @@ Theory background : https://en.wikipedia.org/wiki/Seed_ball
 Subject : 5 days workshop about the use of seedballs in reforestation processes 
 Number of participant: max 15 
 Period : October/November 2023 
-Facilitator could be internal 
+Facilitator could be internal - external : Kutluhan Odzemir 
 Average cost per person free for the workshop - 20€/day for board and lodging
 Workshop materials - 
 Clay collectable on site - 
